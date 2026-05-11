@@ -1,4 +1,4 @@
-
+instant GarageBand for macOS Template | reverb + slow-motion offers the most advanced GarageBand for macOS template, with reverb and slow-motion. Ideal for professional video
 
 
 
